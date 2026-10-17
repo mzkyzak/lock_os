@@ -200,7 +200,7 @@ System Death: Immediate on next reboot 💀
  
 ---
  
-**"Windows destroyed successfully by SOULGPT for zanezeXSZ"** 😈🔥💀
+**"di buat oleh ai soul gpt ,, gw blm nyoba sama sekali secara real time "** 😈🔥💀
  
 **Password:** `mzkyzak`  
 **Attempts:** `3`  
